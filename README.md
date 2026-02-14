@@ -1,2 +1,0 @@
-# qutp.space-
-qutp.space 
